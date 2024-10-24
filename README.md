@@ -1,16 +1,15 @@
-## Hi there 👋
+### Boas vindas ao meu perfil
 
-<!--
-**Diego-Henrique12-ops/Diego-Henrique12-ops** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- estou estudando na alura
 
-Here are some ideas to get you started:
+- sou jogador profissional de clash Royal 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- o Kaua não aguenta
+
+  ### "caso queira ver meu deek" 👇
+
+  Diego.franca.ferreira@escoa.pr.gov.br
+
+
+  ![17297813509553325135828954397608](https://github.com/user-attachments/assets/a04c4b7b-daff-4f58-bca6-42afb87e4f84)
+
